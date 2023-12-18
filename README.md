@@ -37,7 +37,7 @@ diekspor
 
 ## Proses penghalusan batok kelapa
 
-![image](https://github.com/projectsejahtera/Briket-Batok-kelapa-/assets/154112517/9f1eee20-0e47-4466-940e-934eca7c7ac9)
+![image](https://github.com/projectsejahtera/Briket-Batok-kelapa-/assets/154112517/52eb36f2-9fa4-4796-8852-7a649bc9337b)
 
 
 ## Hasil
@@ -45,9 +45,9 @@ diekspor
 
 ![image](https://github.com/projectsejahtera/Briket-Batok-kelapa-/assets/154112517/dc0dbf52-ee6b-4250-b35a-d436cb37b4e9)
 
-![image](https://github.com/projectsejahtera/Briket-Batok-kelapa-/assets/154112517/6886a80b-5c90-4351-a386-163211643dd0)
 
-![image](https://github.com/projectsejahtera/Briket-Batok-kelapa-/assets/154112517/52eb36f2-9fa4-4796-8852-7a649bc9337b)
+![image](https://github.com/projectsejahtera/Briket-Batok-kelapa-/assets/154112517/d3c9e235-2552-4748-9863-9ecc59a1e7e5)
+
 
 
 
