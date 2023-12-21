@@ -51,6 +51,6 @@ diekspor
 ![image](https://github.com/projectsejahtera/Briket-Batok-kelapa-/assets/154112517/d3c9e235-2552-4748-9863-9ecc59a1e7e5)
 
 
-
+![image](https://github.com/projectsejahtera/Briket-Batok-kelapa-/blob/main/IMG-20231219-WA0013.jpg)
 
 ## JANGAN LUPA DIBELI KUALITAS SUPER BAGUS DAN PROSES PEMBAKARAN TANPA LAMA,DAN TAHAN LAMA COCOK UNTUK YANG BUAT BAKAR-BAKAR
