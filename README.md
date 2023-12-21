@@ -1,6 +1,8 @@
 # Briket-Batok-kelapa-
 
-![image](https://github.com/projectsejahtera/Briket-Batok-kelapa-/assets/154112517/16b914f5-4a35-4d76-b21b-c81547257da4)
+![image](https://github.com/projectsejahtera/Briket-Batok-kelapa-/blob/main/IMG-20231218-WA0006.jpg)
+
+
 
 ### Briket arang batok kelapa merupakan alternatif yang kerap digunakan untuk memasak terutama untuk memanggang bahan makanan seperti di Eropa,di negara Timur Tengah digunakan untuk keperluan
 
